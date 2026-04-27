@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 <br>🤝 I<br>🌱 <br><br>⚡ 
+🔭 <br>🤝 <br>🌱 <br><br>⚡ 
 
 
 ## 🌐 Socials:
