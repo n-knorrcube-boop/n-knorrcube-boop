@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on what the hell i wanna actually do because todays era is just so vast and opportunities are actually everywhere, you either make it or slammed on your face, in my case i think its on my face and i just have to put it all together. i do believe half of it are the opportunities i made for myself and half of it are the kindness of the universe<br>🤝 I’m looking for help with what to do with my options<br>🌱 I’m currently learning all sort of shit<br><br>⚡ Fun fact todays era is chaotic, as much as i say theres plenty of opportunities eveywhere theres as much as harangs and hiraps as cost and as given. it just comes with that and like that
+🔭 <br>🤝 I<br>🌱 <br><br>⚡ 
 
 
 ## 🌐 Socials:
