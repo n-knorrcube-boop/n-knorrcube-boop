@@ -1,5 +1,5 @@
 # 💫 About Me:
-🎨 I'm an artist <br>🎮I study Bachelor of Science in Entertainment, Multimedia and Computing <br>🌷I like pink <br><br>
+🎨 I'm an artist <br>🎮 I study Bachelor of Science in Entertainment, Multimedia and Computing <br> 🌷I like pink and cats <br><br>
 
 
 ## 🌐 Socials:
